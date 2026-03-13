@@ -1,1 +1,0 @@
-# Sistema-b-sico-de-gestion-de-producto
